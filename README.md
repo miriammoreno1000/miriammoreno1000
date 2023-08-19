@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @miriammoreno1000
+👋 Hi, I’m @miriammoreno1000.
 I am a Master's graduate student from South Dakota State University.
 My degree is in Biological Sciences with a specialization in Natural Resource Management.
 Restoration and conservation of natural resources is my main research focus and I am heavily interested in invasive species and native species managment. 
